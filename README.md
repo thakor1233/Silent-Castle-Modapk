@@ -5,7 +5,7 @@
 Silent Castle MOD APK adalah permainan bertema horor di mana pemain menjelajahi kastil berhantu, memecahkan teka-teki, dan menghindari ancaman supernatural. Game ini menggabungkan strategi bertahan hidup dengan elemen horor dan puzzle.
 
 
->Unduh Disini 👉👻🧛🏻: https://modhello.com/
+>Unduh Disini 👉👻🧛: [Silent Castle MOD APK](https://modhello.com/silent-castle/)
 
 ---
 
